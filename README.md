@@ -1,3 +1,0 @@
-# granimated.github.io
-
-bruh
