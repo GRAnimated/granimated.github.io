@@ -10,5 +10,7 @@ i post things here
 ### contact me
 
 no
+
 GRAnimated ᵈᵘᵐᵇᵒ#4979
+
 https://twitter.com/granimated
